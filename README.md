@@ -15,7 +15,7 @@ Tradition 2 of MA: For our group purpose there is but one ultimate authority, a 
 
 
 ## Download the Book
-[Download the book here](path/to/a-womans-way-through-the-twelve-steps.pdf)
+[Download the book here](./a-womans-way-through-the-twelve-steps.pdf)
 
 
 

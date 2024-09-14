@@ -1,3 +1,7 @@
+<p align="center">
+  <img src="path/to/recovery_triangle.jpeg" alt="Recovery Triangle" width="300">
+</p>
+
 # A Womyn's Way Through MA
 
 

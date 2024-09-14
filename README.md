@@ -1,7 +1,7 @@
 # A Womyn's Way Through MA
 
 
-### Sharing experience, strength and hope from sister to sister, for all womyn-identified people — if you identify as a woman and you want to stop using cannabis, then you are welcome here!  ❤️‍🩹
+### Sharing experience, strength and hope from sister to sister, for all womyn-identified people — if you identify as a woman and you want to stop using cannabis, then you are welcome here! ❤️
 
 Although we are inspired by the steps, traditions and messages of Marijuana Anonymous, we are not affiliated with this wonderful organization. We encourage those who have the desire to stop or cut back on cannabis use to visit the MA website, go to meetings, find a sponsor and work the 12 steps. It works if you work it!  
 

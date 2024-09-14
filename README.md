@@ -1,6 +1,3 @@
-# WWMA
-
-
 # A Womyn's Way Through MA
 
 

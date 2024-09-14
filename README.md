@@ -16,5 +16,6 @@ Tradition 2 of MA: For our group purpose there is but one ultimate authority, a 
 
 [Download the book here](./a-womans-way-through-the-twelve-steps.pdf)
 
+[Download the chair/tech host script here](./chair-script.pdf)
 
 

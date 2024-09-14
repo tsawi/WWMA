@@ -14,7 +14,6 @@ We have a Zoom reading group for “A Woman’s Way Through the 12 Steps,” Mon
 Tradition 2 of MA: For our group purpose there is but one ultimate authority, a loving Higher Power whose expression may come through in our group conscience. Our leaders are but trusted servants; they do not govern.
 
 
-## Download the Book
 [Download the book here](./a-womans-way-through-the-twelve-steps.pdf)
 
 

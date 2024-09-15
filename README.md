@@ -5,6 +5,13 @@
 # A Womyn's Way Through MA
 
 
+[Download the book here](./a-womans-way-through-the-twelve-steps.pdf)
+
+[Download the chair/tech host script here](./chair_script.pdf)
+
+[Download the Unity Prayer here](./unity_prayer.pdf)
+
+
 ### Sharing experience, strength and hope from sister to sister, for all womyn-identified people — if you identify as a woman and you want to stop using cannabis, then you are welcome here! ❤️
 
 Although we are inspired by the steps, traditions and messages of Marijuana Anonymous, we are not affiliated with this wonderful organization. We encourage those who have the desire to stop or cut back on cannabis use to visit the MA website, go to meetings, find a sponsor and work the 12 steps. It works if you work it!  
@@ -14,8 +21,6 @@ We have a Zoom reading group for “A Woman’s Way Through the 12 Steps,” Mon
 Tradition 2 of MA: For our group purpose there is but one ultimate authority, a loving Higher Power whose expression may come through in our group conscience. Our leaders are but trusted servants; they do not govern.
 
 
-[Download the book here](./a-womans-way-through-the-twelve-steps.pdf)
 
-[Download the chair/tech host script here](./chair_script.pdf)
 
 
